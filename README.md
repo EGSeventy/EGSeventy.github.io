@@ -1,1 +1,0 @@
-# EGSeventy.github.io
